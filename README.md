@@ -5,4 +5,3 @@
 - 📫 You can reach me on gmail @ adedijiemmanuelabiodun@gmail.com
 Also you can reach me on 07037705077
 I am open to learning
-Eminetlagos/Eminetlagos is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
